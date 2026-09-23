@@ -1,1 +1,0 @@
-# Baga-angiin-suragchiin-web
